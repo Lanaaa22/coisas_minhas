@@ -1,2 +1,2 @@
-# coisas_minhas
-coisas que eu faço em escola hahaha
+https://lanaaa22.github.io/coisas_minhas
+
